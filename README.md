@@ -1,16 +1,10 @@
-### Hi there 👋
-
-<!--
-**BERGAMASCHIJOAO/BERGAMASCHIJOAO** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+JOAO HENRIQUE BERGAMASCHI 🏳️‍🌈
+🦀 CÂNCER ♋️ 
+☃️ SNOWMAN 
+🏐 VÔLEI 
+👾 2008
+🦉 PEDAGOGIA 
+🐳 é um símbolo de proteção,força e sensibilidade 
+🇧🇷 PR FORTALEZA 
+🏝 MUDAR PODE DAR MEDO, MAS É UMA AVENTURA QUE PODE TE LEVAR MUITO LONGE 
+🍀 PRETENDO SER UM ÓTIMO PROFESSOR, MAS MEU SONHO MESMO É SER JOGADOR DE VÔLEI DA SELEÇÃO BRASILEIRA ( SBF )
